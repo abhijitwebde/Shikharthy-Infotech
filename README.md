@@ -1,1 +1,1 @@
-# Shikharthy-Infotech
+# Sikharthy-Infotech
